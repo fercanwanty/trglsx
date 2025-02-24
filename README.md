@@ -1,3 +1,5 @@
+<a href="https://shorten.is/nanotv"><img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMXBub3o4ZzZwOHFkdjFveHE1OW8yNXR2dW92Y3hhZHRnNDExZ3kwaCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KxnyY9ib07l5k7oRta/giphy.gif"></a>
+
 # TRGoals - 24 Şubat Galatasaray - Fenerbahçe Maçını Canlı İzle
 
 Türkiye'nin en büyük derbilerinden biri olan **Galatasaray - Fenerbahçe** mücadelesi için nefesler tutuldu! 24 Şubat'ta oynanacak bu dev maçı **TRGoals** farkıyla **HD ve kesintisiz** izlemek için doğru adrestesiniz.
